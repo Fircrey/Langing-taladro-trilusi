@@ -1,1 +1,0 @@
-# Langing-taladro-trilusi
